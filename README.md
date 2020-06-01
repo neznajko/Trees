@@ -3,10 +3,10 @@
 For me America most of all is a world from the books and films (and
 recently from the news on YouTube). To be honest I didn't like
 Americans very much because they always have very big opinion about
-themselves, but have realized that they are actually strong, because
+themselves, but recently have realized that they are actually strong, because
 from the beginning of their nation are living in the wild.
-Despite the lack of any reputation:) would like to give my personal support
-to the people of America.
+In this difficult times, despite the lack of any reputation:) would like to give 
+my personal support to the people of America.
 
 ### Trees
 Ok, this is the 2nd problem from '91, 
