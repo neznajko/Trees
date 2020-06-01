@@ -6,7 +6,7 @@ Americans very much because they always have very big opinion about
 themselves, but recently have realized that they are actually strong, because
 from the beginning of their nation are living in the wild.
 In this difficult times, despite the lack of any reputation:) would like to give 
-my personal support to the people of America.
+my support to the people of America.
 
 ### Trees
 Ok, this is the 2nd problem from '91, 
